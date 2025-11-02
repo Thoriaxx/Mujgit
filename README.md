@@ -1,0 +1,1 @@
+Přidaný text 1
